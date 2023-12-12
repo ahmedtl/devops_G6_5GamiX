@@ -1,0 +1,1 @@
+# devops_G6_5GamiX
